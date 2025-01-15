@@ -2,7 +2,7 @@
 - 👀 I’m interested in program language , data science, machine learning , eg
 - 🌱 I’m currently learning data science, machine learning 
 - 💞️ I’m looking to collaborate on projects and other thing
-- 📫 How to reach me ... send me a email or what up
+- 📫 How to reach me ... send me a email-tjoelcampos@gmail.com or whats up me 42 984029158
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
